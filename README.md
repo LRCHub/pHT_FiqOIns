@@ -1,4 +1,4 @@
-# RADWIMPS – グランドエスケープ (Movie edit)（feat. 三浦透子）
+# Radwimps – グランドエスケープ (Movie edit) - Grand Escape (Movie Edit) (feat. Toko Miura)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
